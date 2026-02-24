@@ -1,1 +1,0 @@
-# Veri_Organizasyonu
